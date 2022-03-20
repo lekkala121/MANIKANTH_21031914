@@ -1,2 +1,0 @@
-# MANIKANTH_21031914
-Assignment _1
